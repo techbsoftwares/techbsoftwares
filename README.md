@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @techbsoftwares
+- 👀 I’m interested in software development
+- 🌱 I’m currently learning Business growth
+- 💞️ I’m looking to collaborate on business growth and software development
+- 📫 How to reach me msddevelopers1@gmail.com
